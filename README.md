@@ -5,7 +5,7 @@
 - 📫 How to reach me ?
 -     there are many ways to reach me:-
 -       a). nakulverma09 is a github account
--       b). nakul.verma.11 is a insta id
+-       b). verma.nakul.07 is a insta id
 - 😄 Pronouns: ...!
 - ⚡ Fun fact: ...!
 
